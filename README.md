@@ -1,5 +1,4 @@
-![Imgur](https://imgur.com/MTZ4nEX)
-
+![Imgur](https://i.imgur.com/MTZ4nEX.jpg)
 # Career Development
 
 ## Career Support Guide
